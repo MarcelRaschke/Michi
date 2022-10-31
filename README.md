@@ -1,1 +1,2 @@
-# Michi ⚜️{.M3•0N.}⚜️
+# ⚜️{.M3•0N.}⚜️
+creates webspace for domain: <.djjessejay.ch/index.html>
